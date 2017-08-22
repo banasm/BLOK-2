@@ -1,1 +1,1 @@
-Warsztat kończowy z bloku 2 
+Warsztat końcowy z bloku 2 
